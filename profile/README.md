@@ -22,7 +22,7 @@ You might be in a healthy platonic relationship if:
 
 This is one of the most searched questions today. The truth is, **a platonic relationship between a man and a woman** (or any gender pairing) can sometimes evolve—especially when the emotional closeness is intense. However, setting clear **relationship boundaries** and having open conversations help prevent misunderstandings.
 
-> ** Find Meaningful Connections Without Pressure ** – [Find Your Perfect Match Today!](https://redirectingirl.netlify.app/)
+> ## Find Meaningful Connections Without Pressure  – [Find Your Perfect Match Today!](https://redirectingirl.netlify.app/)
 
 ## Spiritual and Non-Sexual Connections
 
@@ -48,7 +48,7 @@ Yes, even **long-distance open relationships** or friendships can thrive when bo
 
 While most dating apps are romance-focused, platforms like Bumble BFF, Friender, or Meetup offer spaces to foster **platonic connections**. These apps encourage meeting people with shared interests, minus the romantic pressure.
 
-> ** Explore Deeper Bonds – No Strings Attached! ** [Find Your Perfect Match Today!](https://redirectingirl.netlify.app/)
+> ## Explore Deeper Bonds – No Strings Attached! [Find Your Perfect Match Today!](https://redirectingirl.netlify.app/)
 
 ## Final Thoughts
 
